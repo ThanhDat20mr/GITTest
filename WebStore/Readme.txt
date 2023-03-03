@@ -1,0 +1,1 @@
+Xoa cho nhẹ
